@@ -8,18 +8,12 @@
 Hi there 👋 **Taejun Park** is ✨ creative ✨
 
 
-Music Lover 🎧
-
-</br>
-
-Data Science
+Music Lover 🎧 
+Data Analysis 🖥️📊
 
 
 
 
-
-</br>
-</br>
 
 ## 👨🏻‍🎓 Education
 
