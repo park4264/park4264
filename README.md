@@ -5,13 +5,6 @@
 [<img src="https://img.shields.io/badge/qkr4264@gmail.com-EF8000?style=flat-square&logo=Gmail&logoColor=white"/>](qkr4264@gmail.com) 
 
 
-Hi there 👋 **Taejun Park** is ✨ creative ✨
-
-
-Music Lover 🎧 
-Data Analysis 🖥️📊
-
-
 
 
 
